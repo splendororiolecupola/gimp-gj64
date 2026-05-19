@@ -1,4 +1,4 @@
-# 
+# elite Adobe Photoshop for PC executor is the best Adobe Photoshop for PC executor with character-styles and alignment-tools. Safe, reliable, and optimized for maximum performance.
 
 
 
